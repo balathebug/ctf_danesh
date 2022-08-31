@@ -1,12 +1,12 @@
 # ctf_danesh
 Hey Danesh, This is for you
 
+doubt everything what you see!!!
 
 
 
+<!-- https://stylesuxx.github.io/steganography/ -->
 
 
-
-//shorturl.at/fhpxP
 
 always reviews are the gateways.
